@@ -1,6 +1,6 @@
 hello my name is jordyn and i hide people a lot because i have a short temper and things set me off fast
 </br>
-dont take my hides personally unless its a utdr pony i just curate my internet experience as i see fit 
+dont take my hides personally unless its a utdr pony (i kill every white frisk. they are yellow bare minimum) i just curate my internet experience as i see fit 
 </br>
 i will permablock if you point out something obvious about me as if i can't see it lol i'm not your eye candy
 </br>
